@@ -1,3 +1,3 @@
 # hello-world
 following a tutorial 
-I am John Rose.  I work in Tallmadge, OH as a web developer for Summit Racing.  I am married (10 years!) and have two crazy boys.
+I am John Rose.  I work in Mars as a miner for Outer Limits mining.  I have a lot of friends on Mars but have kinda lost touch with my family and friends on Earth.
